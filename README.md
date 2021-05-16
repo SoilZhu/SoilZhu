@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![2020_11_07_21_14_15.jpeg](https://i.loli.net/2021/05/17/clyzpOFZGXoVW5f.jpg)
+![2020_11_07_21_14_15.jpeg](https://z3.ax1x.com/2021/05/17/g29NJe.jpg)
 
 
 - A student from Wuhu, China🇨🇳.
