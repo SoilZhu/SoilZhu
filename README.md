@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![2020_11_07_21_14_15.jpeg](https://z3.ax1x.com/2021/05/17/g29NJe.jpg)
+![image](https://user-images.githubusercontent.com/74606271/119837227-f7b57100-bf34-11eb-8bfa-ca99d368964d.png)
 
 
 - A student from Wuhu, China🇨🇳.
