@@ -10,3 +10,4 @@
 - **菜.jpg**
 
 - [telegram](t.me/mintrainy)
+- [blog (in Chinese) ](https://blog.soilzhu.edu.kg)
