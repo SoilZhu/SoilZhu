@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-- A high school student from Anhui, China🇨🇳.
+- A student from Anhui, China🇨🇳.
 
 - As u see, I'm not good at all the languages, even Chinese (XD
 
