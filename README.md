@@ -9,5 +9,5 @@
 
 - **菜.jpg**
 
-- [telegram](t.me/mintrainy)
+- [telegram](https://t.me/mintrainy)
 - [blog (in Chinese) ](https://blog.soilzhu.su)
